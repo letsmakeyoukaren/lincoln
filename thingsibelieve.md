@@ -14,6 +14,16 @@
 12. Do with purpose - 4/3/20
 13. Music makes focusing on work easy and fun - 4/3/20
 14. If you've done something you regret: stop regretting, don't repeat, and get back to work - 4/3/20
+15. Make the most of what you have and don't complain - 4/3/20
+16. The costs of not following a normal sleep schedule outweigh any benefits - 4/4/20
+17. I want to control my own education - 4/4/20
+18. The search for reliable sources of information is critical - 4/4/20
+19. Search engines are overrated - 4/4/20
+20. There is a time for reading and a time for searching - 4/4/20
+21. For now, I don't need to know how it works, I just need to know that it works - 4/4/20
+22. Length increases speed; speed doesn't increase length - 4/4/20
+23. Time wasting activities should be isolated and contained - 4/4/20
+24. Mistakes are opportunities for correction and improvement - 4/4/20
 
 ## Old principles
 

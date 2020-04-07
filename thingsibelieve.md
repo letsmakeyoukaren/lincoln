@@ -24,6 +24,11 @@
 22. Length increases speed; speed doesn't increase length - 4/4/20
 23. Time wasting activities should be isolated and contained - 4/4/20
 24. Mistakes are opportunities for correction and improvement - 4/4/20
+25. Exhaust the old and move onto the new - 4/5/20
+26. Satisfying a woman does her more good than you - 4/5/20
+27. Cussing is unnecessary - 4/6/20
+28. Junk food is bad for the body, for the mind, for the wallet - 4/6/20
+29. Think and do only the minimum necessary to get things done; leave everything else for after - 4/7/20
 
 ## Old principles
 

@@ -29,6 +29,13 @@
 27. Cussing is unnecessary - 4/6/20
 28. Junk food is bad for the body, for the mind, for the wallet - 4/6/20
 29. Think and do only the minimum necessary to get things done; leave everything else for after - 4/7/20
+30. Running, eating, pooping, bathing, and peeing is thinking time, any other time is doing time - 4/7/20
+31. Always check your work - 4/7/20
+32. I want money - 4/8/20
+33. Think fast, act fast - 4/8/20
+34. Being arrogant and gossiping is the worst - 4/8/20
+35. I am the worst - 4/8/20
+36. Sloppy is better than nothing and better than late - 4/8/20
 
 ## Old principles
 

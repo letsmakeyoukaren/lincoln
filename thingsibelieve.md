@@ -36,6 +36,8 @@
 34. Being arrogant and gossiping is the worst - 4/8/20
 35. I am the worst - 4/8/20
 36. Sloppy is better than nothing and better than late - 4/8/20
+37. Focus on your work and ignore what the people say - 4/11/20
+38. No matter how much of a good thing you have, if it is unorganized and unfocused, it is worthless - 4/15/20
 
 ## Old principles
 

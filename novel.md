@@ -14,4 +14,8 @@ The door slid soundlessly open and Karen entered the room.
 
 "Yes, yes, I know."
 
-Lincoln was sitting in front of his desktop monitor as usual. His desk wasn't particularly messy but neither could you call it neat. Various things lay scattered about it, including an old Fujitsu scanner and a pair of retainers. The most striking object on it was the large and bright screen of an iPad Pro that was displaying hastily scribbled equations and calculations. Lincoln stretched his arms leaned back against his chair
+Lincoln was sitting in front of his desktop monitor as usual. His desk wasn't particularly messy but neither could you call it neat. Various things lay scattered about it, including an old Fujitsu scanner and a pair of retainers. The most striking object on it was the large and bright screen of an iPad Pro that had been hastily scribbled with equations and calculations. Lincoln yawned and stretched his arms as he leaned back against his chair.
+
+"You know, I had no problems sleeping and waking early back on campus. Not sure why it's becoming such a problem now that I'm back home."
+
+"Just sleep and wake at the same time every day. You don't need to make it complicated."
